@@ -2,11 +2,15 @@
 
 # Syllabus for JSIS 588/HSTAS 590
 Making Modern Taiwan: History, Politics, Society, and Culture
+
 Fall 2020
+
 Rev. July 13, 2020
 
 Jackson School of International Studies
+
 Professor James Lin
+
 jyslin@uw.edu
 
 ## Description:
